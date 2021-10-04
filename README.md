@@ -1,3 +1,11 @@
+Hola
+Ñoño
+Nknnnn
+Mllk
+Klkj
+Klkj
+Kkkkk
+Hi
 - 👋 Hi, I’m @Gwyneth1238
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
